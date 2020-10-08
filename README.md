@@ -1,1 +1,0 @@
-# germanschoolsexplained.io
